@@ -16,4 +16,4 @@ I'm a full-stack software engineer with a passion for building high-quality, hig
 😄 Pronouns: He/Him
 
 
-When I'm not working on a project, then I'm probably on youtube, either watching a programming tutorial or short movies. And if I'm not doing any of those, then I'm probably out with my friends. otherwise, I'm on my bed sleeping for sure!
+When I'm not working on a project, then I'm probably on youtube, either watching a programming tutorial or short movies. And if I'm not doing any of those, then I'm probably taking care of my cat.
